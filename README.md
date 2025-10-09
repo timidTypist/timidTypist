@@ -6,9 +6,6 @@
 
 welcome to my profile!!!!!!!!! yay!!!!!!
 
-> [!NOTE]
-> this will be updated often! if you see a lot of changes, that's normal!
-
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
 
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
