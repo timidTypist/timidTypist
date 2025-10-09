@@ -7,6 +7,17 @@ my profile!!!!!!!!! yay!!!!!!
 ![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
 
 ![.](https://github.com/user-attachments/assets/b9e1d961-dec5-495e-84d4-d21456586912)
+![.](https://github.com/user-attachments/assets/24103597-9c85-42da-b483-5b6ae7cd551c)
+![.](https://github.com/user-attachments/assets/5b0a5f24-ce6e-4f10-9646-bc0c2a43288e)
+![.](https://github.com/user-attachments/assets/0bf3f34f-300c-48a3-b674-149e59be4bc3)
+![.](https://github.com/user-attachments/assets/5a1c460d-f980-4d46-8b07-f302c551dd1b)
+![.](https://github.com/user-attachments/assets/9f260ef8-c9c1-492e-8f9a-7a087041aaae)
+![.](https://github.com/user-attachments/assets/2933955e-806a-4de0-ba58-cb80ea423a10)
+![.](https://github.com/user-attachments/assets/8d7cd5b6-fa72-42ca-9d47-69a0c204dcdb)
+![.](https://github.com/user-attachments/assets/70aed329-a489-4d29-8fbb-131be0a189f5)
+![.](https://github.com/user-attachments/assets/55cf559d-a317-420a-8520-78c2cb770695)
+
+
 
 
 # What will the name of this young man be? 
@@ -77,6 +88,9 @@ thank you!!! <:)
 
 
 i freely block! dont be offended!!! i'd just rather not interact!!!
+
+
+![.](https://github.com/user-attachments/assets/5518a551-8621-4512-aa61-bc0e5b9c37f5)
 
 
 
