@@ -24,7 +24,7 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 
 
 
-###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)* - *[ DNI ](#DNI)* - *[ Honorable Mentions ](#Honorable-Mentions)* - *[External Links / My Websites](#External-Links)*
+###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)* - *[ DNI ](#DNI)* - *[ Honorable Mentions ](#Honorable-Mentions)* - *[External Links / My Websites](#My-Websites)*
 
 
 
@@ -111,7 +111,7 @@ i freely block! dont be offended!!! i'd just rather not interact!!!
 
 ![.](https://github.com/user-attachments/assets/5518a551-8621-4512-aa61-bc0e5b9c37f5)
 
-
+# My Websites
 # $${\color{lightgreen}External \space Links}$$
 #### > https://typisttango.straw.page/
 
