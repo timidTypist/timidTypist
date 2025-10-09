@@ -4,7 +4,7 @@
 
 my profile!!!!!!!!! yay!!!!!!
 
-![](https://komarev.com/ghpvc/?timidTypist=timidTypist)
+![](https://komarev.com/ghpvc/?username=timidTypist&style=plastic)
 
 ![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
 
