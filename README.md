@@ -6,6 +6,9 @@
 
 welcome to my profile!!!!!!!!! yay!!!!!!
 
+> [!NOTE]
+> this will be updated often! if you see a lot of changes, that's normal!
+
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
 
 ![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
@@ -105,14 +108,14 @@ thank you!!! <:)
 > - proship/darkship (its not that i hate you!!! but please dont interact!! it makes me uncomfortable!)
 > + basic DNI! terfs, homophobes, racists, etc! leave my page please!!!!!
 
-
-i freely block! dont be offended!!! i'd just rather not interact!!!
+> [!WARNING]
+> i freely block! dont be offended!!! i'd just rather not interact!!!
 
 
 ![.](https://github.com/user-attachments/assets/5518a551-8621-4512-aa61-bc0e5b9c37f5)
 
 # My Websites
-# $${\color{lightgreen}External \space Links}$$
+# $${\color{lightgreen}typistTango's \space Strawpage}$$
 #### > https://typisttango.straw.page/
 
 
