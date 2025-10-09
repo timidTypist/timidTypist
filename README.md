@@ -83,7 +83,7 @@ thank you!!! <:)
 
 
 # DNI
-> proship/darkship (its not that i hate you!!! but please dont interact!! it makes me uncomfortable!)
+> - proship/darkship (its not that i hate you!!! but please dont interact!! it makes me uncomfortable!)
 > + basic DNI! terfs, homophobes, racists, etc! leave my page please!!!!!
 
 
@@ -97,4 +97,4 @@ i freely block! dont be offended!!! i'd just rather not interact!!!
 # Honorable Mentions
 > p.s.
 >
-> go show some love to my goat @Saphicorn
+> - go show some love to my goat @Saphicorn
