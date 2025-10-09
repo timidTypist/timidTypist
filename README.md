@@ -1,6 +1,6 @@
 ![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
 
-#### $\textcolor{green}{\textsf{timidTypist}}$
+### $${\color{green}welcome \space \color{lightgreen}to \space \color{blue}timidTypist's profile!!!}$$
 
 my profile!!!!!!!!! yay!!!!!!
 
