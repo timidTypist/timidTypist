@@ -14,7 +14,6 @@ i dont mind interacting!!!! please be nice though :(
 DO NOT BE WEIRD.
 
 # Interests
-## _and more.._
 
 here are some of the fandoms/webcomics/games i like!!
 ### Homestuck
@@ -25,9 +24,11 @@ here are some of the fandoms/webcomics/games i like!!
 ### Ultrakill
 
 # Ponytown Info
-## _and not much more.._
 
 c+h if you would like!!! i love to play and have fun!!! i dont mind!!!
 i'm not sure about roleplaying... i dont roleplay... sorry!!
 INT always!!!! whispering is okay but i might not always see the notification!!!!
 thank you!!! <:)
+
+![.]![image](https://github.com/user-attachments/assets/bc86822b-888e-4afb-a0b0-cc025bc5d208)
+
