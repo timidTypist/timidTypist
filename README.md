@@ -40,7 +40,7 @@ my profile!!!!!!!!! yay!!!!!!
 
 hi..... i'm typist! you can call me tango too!
 
-i'm kind of nervous... please be patient!
+i'm kind of nervous... please be patient!!!! PLEASE!!! I AM SO NERVOUS I WILL PEE!!!!!!!!
 
 i love to make friends!!! play play play!!!! yayyyyyy!!!!!!
 
