@@ -43,23 +43,23 @@ DO NOT BE WEIRD. DO NOT.
 
 # Interests
 
-here are some of the fandoms/webcomics/games i like!!
+## here are some of the fandoms/webcomics/games i like!!
 
-**Homestuck**
+- **Homestuck**
 
-**Portal 1 + 2**
+- **Portal 1 + 2**
 
-**Hollow Knight**
+- **Hollow Knight**
 
-**Uma Musume**
+- **Uma Musume**
 
-**Linux Distributions, Windows Builds, And Unix Systems**
+- **Linux Distributions, Windows Builds, And Unix Systems**
 
-**Transformers**
+- **Transformers**
 
-**Phighting**
+- **Phighting**
 
-**Ultrakill**
+- **Ultrakill**
 
 ***AND MUCH MORE!***
 
