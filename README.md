@@ -18,15 +18,19 @@ my profile!!!!!!!!! yay!!!!!!
 ![.](https://github.com/user-attachments/assets/8d7cd5b6-fa72-42ca-9d47-69a0c204dcdb)
 ![.](https://github.com/user-attachments/assets/70aed329-a489-4d29-8fbb-131be0a189f5)
 ![.](https://github.com/user-attachments/assets/55cf559d-a317-420a-8520-78c2cb770695)
+![.](https://github.com/user-attachments/assets/be4581be-88a5-430d-9daf-105ac3b623cf)
+
 
 
 ###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)*
 
 
+![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
 ### > *What will the name of this young man be?*
 
 ### > <ins>Enter Name.</ins>
+![.](https://github.com/user-attachments/assets/3db14194-0b45-46dd-b16c-1b1fd01fb661)
 
 
 
