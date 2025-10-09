@@ -24,7 +24,7 @@ my profile!!!!!!!!! yay!!!!!!
 
 
 # What will the name of this young man be? 
-## > <ins>Enter Name.</ins>
+# > <ins>Enter Name.</ins>
 
 
 # About Me
