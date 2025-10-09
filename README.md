@@ -1,7 +1,13 @@
+![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
+
 # timidTypist
+
+![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
+
 my profile!!!!!!!!! yay!!!!!!
 
 ![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
+
 ![.](https://github.com/user-attachments/assets/b9e1d961-dec5-495e-84d4-d21456586912)
 
 
