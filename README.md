@@ -2,8 +2,6 @@
 
 # timidTypist
 
-![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
-
 my profile!!!!!!!!! yay!!!!!!
 
 ![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
@@ -24,7 +22,9 @@ i dont mind interacting!!!! please be nice though :(
 
 DO NOT BE WEIRD. DO NOT.
 
+
 ![.](https://github.com/user-attachments/assets/f3661971-93b7-413b-90c3-9b5b48803a3b)
+
 
 # Interests
 
@@ -47,6 +47,10 @@ here are some of the fandoms/webcomics/games i like!!
 **Ultrakill**
 
 ***AND MUCH MORE!***
+
+
+![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
+
 
 # Ponytown Info
 
