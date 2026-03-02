@@ -1,10 +1,8 @@
 ![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
 
 
-# $${\color{green}welcome \space \color{lightgreen}to \space \color{blue}timidTypist's \space \color{lightblue}profile!!!}$$
+# $${\color{green}welcome \space \color{lightgreen}to \space \color{blue}timidTypist's \space \color{lightblue}profile!!!}$$ 
 
-
-welcome to my profile!!!!!!!!! yay!!!!!!
 
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
 
@@ -19,17 +17,7 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 
 ![.](https://github.com/user-attachments/assets/bfba6c45-f9b2-4c9a-8865-7c2d424e083c)
 
-hi..... i'm typist! you can call me tango too!
-
-i'm kind of nervous... please be patient!!!! PLEASE!!! I AM SO NERVOUS I WILL PEE!!!!!!!!
-
-i love to make friends!!! play play play!!!! yayyyyyy!!!!!!
-
-i dont mind interacting!!!! please be nice though :(
-
-he/him... woke AF.... the WOKER.. why so queerious?
-
-DO NOT BE WEIRD. DO NOT.
+ <img width="390" height="553" alt="Untitled4233_20260210003627" src="https://github.com/user-attachments/assets/c5916cd8-cc18-4d66-a743-7a8195867c6d" /> 
 
 
 # Interests
