@@ -70,7 +70,6 @@ INT always!!!! whispering is okay but i might not always see the notification!!!
 
 thank you!!! <:)
 
-![.](https://github.com/user-attachments/assets/bc86822b-888e-4afb-a0b0-cc025bc5d208)
 
 
 # DNI
