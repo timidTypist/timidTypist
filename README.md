@@ -22,14 +22,14 @@
 
 
 
-# $${\color{#c90202}About \space Me}$$
+# About Me
 
 > [!WARNING]
 > <img width="390" height="553" alt="apple" src="https://github.com/user-attachments/assets/c5916cd8-cc18-4d66-a743-7a8195867c6d" /> 
  
 
 
-# $${\color{#c90202}Interests}$$
+# Interests
 
 <img width="640" height="74" alt="by @sister-lucifer on tumblr!!" src="https://github.com/user-attachments/assets/f8bbc11d-1cff-4791-9322-cdc36b5a3a8b" />
 
@@ -53,7 +53,7 @@
 
 <img width="640" height="74" alt="by @sister-lucifer on tumblr!!" src="https://github.com/user-attachments/assets/f8bbc11d-1cff-4791-9322-cdc36b5a3a8b" />
 
-# $${\color{#c90202}Ponytown \space Info}$$
+# Ponytown Info
 
 
 <img width="640" height="93" alt="by @sister-lucifer on tumblr!!" src="https://github.com/user-attachments/assets/a2c739fe-1b1a-453c-b20d-f3f7ce68f8a9" />
@@ -72,16 +72,17 @@ thank you!!! <:)
 
 <img width="640" height="93" alt="by @sister-lucifer on tumblr!!" src="https://github.com/user-attachments/assets/a2c739fe-1b1a-453c-b20d-f3f7ce68f8a9" />
 
-# $${\color{#c90202}DNI}$$
+# DNI
 <img width="640" height="92" alt="by @sister-lucifer on tumblr!!" src="https://github.com/user-attachments/assets/b97a3cec-2c1f-44d3-a2b5-6d6a5202761c" />
 
-> + basic DNI! terfs, homophobes, racists, etc! leave my page please!!!!!
+> + basic DNI! (terfs, homophobes, racists, etc!) leave my page please!!!!!
+> + i freely block. sorry.
 
 <img width="640" height="92" alt="by @sister-lucifer on tumblr!!" src="https://github.com/user-attachments/assets/b97a3cec-2c1f-44d3-a2b5-6d6a5202761c" />
 
 
 
-# $${\color{#c90202}My \space Websites}$$
+# My Websites
 
 <img width="640" height="92" alt="by @sister-lucifer on tumblr!!!" src="https://github.com/user-attachments/assets/fb173a09-e475-492d-a075-d6b60edd36ea" />
 
