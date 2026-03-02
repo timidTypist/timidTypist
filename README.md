@@ -9,15 +9,10 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
 
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
-![.](https://github.com/user-attachments/assets/9b38bf2b-963f-4f86-96de-ee926d9c2069)
-![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
-
-
 
 ###### *[About Me](#About-Me)* - *[ Interests / Fandoms ](#Interests)* - *[ Ponytown Info ](#Ponytown-Info)* - *[ DNI ](#DNI)* - *[ Honorable Mentions ](#Honorable-Mentions)* - *[External Links / My Websites](#My-Websites)*
 
-
-
+![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
