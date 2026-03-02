@@ -1,7 +1,7 @@
 ![.](https://github.com/user-attachments/assets/754cd900-1959-40c4-aad4-3c0d7e74a4df)
 
 
-# $${\color{green}welcome \space \color{lightgreen}to \space \color{blue}timidTypist's \space \color{lightblue}profile!!!}$$ 
+# $${\color{green}welcome \space \color{lightgreen}to \space \color{blue}Typist's \space \color{lightblue}profile!!!}$$ 
 
 
 ![](https://komarev.com/ghpvc/?username=timidTypist&color=brightgreen&style=plastic&label=profile+views!!!!)
