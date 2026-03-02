@@ -14,14 +14,6 @@ welcome to my profile!!!!!!!!! yay!!!!!!
 
 ![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
 
-![.](https://github.com/user-attachments/assets/7f176e5d-8577-41cd-ac5b-1096d1850606)
-
-### > *What will the name of this young man be?*
-
-#### $\textcolor{blue}{\textsf{> Enter Name.}}$
-![.](https://github.com/user-attachments/assets/3db14194-0b45-46dd-b16c-1b1fd01fb661)
-
-
 
 # About Me
 
